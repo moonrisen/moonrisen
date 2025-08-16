@@ -20,3 +20,5 @@
 - proshitters , font users , tq users , people under 15 , weird ass people . basic dni stuff ...... tobirama likers . ^_^
 ---
 this isnt a dni just dont use tone tags on me thank yeww
+
+### all the billion alt accs are have are for alters . and also i have a github making addiction i need everysingle acharacter name i need hte all i nee the i
