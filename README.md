@@ -22,3 +22,7 @@
 this isnt a dni just dont use tone tags on me thank yeww
 
 ### all the billion alt accs i have are for alters . and also i have a github making addiction i need everysingle acharacter name i need hte all i nee the i
+
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=moonrisen&color=7b0547&style=plastic&label=✧&abbreviated=true)
