@@ -25,4 +25,4 @@ this isnt a dni just dont use tone tags on me thank yeww
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=moonrisen&color=7b0547&style=plastic&label=✧&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=moonrisen&color=661c15&style=plastic&label=★&abbreviated=true)
