@@ -1,27 +1,24 @@
-## IM GONNA PRETTY THUIS ITS GONNA GAPPEN SOON STAY TOONED
-
 **READ MY PATREON** It has more info + goes more in depth
 
 
-### Names are Salem / Mika but you can also call me Moonlit !! 
-- AuADHD System please be chill .
-- I usually sit with friends or with my wife , ur welcome to whisper me !
-- im realy stupid and socialy anxious and stupid
-- If I friend you I intend to chat with you often and sit together , not just to have the green name . Please keep that in mind
----
-- I have a lot of interests that i try to be normal about , i can get pretty gatekeepy but i keep it to mysefl trust
-- I DONT INT WITH FANDOMS OFTEN people freak me out why are you all ILL .
+### I go by **Zora** . You can call me Salem or Moonlit also
+- AuADHD Sys . Dont be a freak
+- Your welcome to whisper me anytime
+- Pretty anti social at times . Im very blunt and often come off rude , im not being an ass
+- I have a lot of interests . Sometimes I will avoid people that are into the shit im into , it just depends on the person and the media 
+- I do not int with fandoms
+- Do not use ttgs on me , I **will not** use them either . I have no issues clarifying my tone in other ways
+- I block freely .
 
-### Shit im into umm
-- 800 billion animes .. ***IM:*** , **Naruto** , **DrStone** , **FMA(B)** , **Seraph** , **PKMN** , HxH , YOtD , Magi , **AOT** . I LIRTLLY CANNOT REMEBR BUT I HAVE TO LIST THEM ALL .
-- normal things .. astronomy , lietrally just sceince . foxes / big cats , cooking , art / drawing
+### My big / main interests
+- ***IM:*** , **Naruto** , **DrStone** , **Gachiakuta** , **FMA(B)** , **Seraph** , **PKMN**
+- astronomy , weather / natural disasters , lietrally just sceince , foxes / big cats , cooking , art / drawing
 
-### Dni glare
-- proshitters , font users , tq users , people under 15 , weird ass people . basic dni stuff ...... tobirama likers . ^_^
----
-this isnt a dni just dont use tone tags on me thank yeww
+### Dni
+- proshitters , font users , tq users , people under 15 , weird ass people , basic dni .
+- I take my dni very seriously and I do not have issues cutting people off 
 
-### all the billion alt accs i have are for alters . and also i have a github making addiction i need everysingle acharacter name i need hte all i nee the i
+### Some other accounts linked to this one are for my alters . Also SOMEONE is fuckng insane and needs to make 800 of them
 
 <div align="center">
 
