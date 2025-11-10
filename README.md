@@ -1,4 +1,4 @@
-**READ MY PATREON** It has more info + goes more in depth
+**READ MY STRAWPAGE**
 
 
 ### I go by **Zora** . You can call me Salem or Moonlit also
