@@ -1,24 +1,26 @@
-**READ MY STRAWPAGE**
+## **READ MY STRAWPAGE**
 
+Guys its not happening im not making this look nice
 
-### I go by **Zora** . You can call me Salem or Moonlit also
-- AuADHD Sys . Dont be a freak
-- Your welcome to whisper me anytime
-- Pretty anti social at times . Im very blunt and often come off rude , im not being an ass
-- I have a lot of interests . Sometimes I will avoid people that are into the shit im into , it just depends on the person and the media 
-- I do not int with fandoms
-- Do not use ttgs on me , I **will not** use them either . I have no issues clarifying my tone in other ways
-- I block freely .
+### Zora , Moonlit 
+- AuADHD System , be normal or else
+- Please whisper !! Be my friend ok ? I want friends so bad .. i want to socialize and talk to people and sit with them plspslpsls if you need a cuddle buddy i AM HERE
+- Sometimes i come off antisocial , or rude , or blunt .. im not being an asshole ok trust
+- sometimes i avoid people that share interests with me , it just depends on the person and the interest 
+- i do **NOT** int with fandom areas rarely ever your all fucking weird
 
-### My big / main interests
-- ***IM:*** , **Naruto** , **DrStone** , **Gachiakuta** , **FMA(B)** , **Seraph** , **PKMN**
+- i block freely
+
+### Shit im into ohh yeahhh
+- ***IM:*** , **DrStone** , **Gachiakuta** , **Naruto** , **FMA(B)** , **Magi** , **Seraph(OtE)** , **PKMN**
 - astronomy , weather / natural disasters , lietrally just sceince , foxes / big cats , cooking , art / drawing
 
-### Dni
-- proshitters , font users , tq users , people under 15 , weird ass people , basic dni .
-- I take my dni very seriously and I do not have issues cutting people off 
+### Dni ew yucky you
+- proshitters , font users , typing quirk users , people under 15 , weird ass people , basic dni
 
-### Some other accounts linked to this one are for my alters . Also SOMEONE is fuckng insane and needs to make 800 of them
+--- 
+
+yeah so if this is redone again and it looks all scary ignore that ok im nice and i want friends
 
 <div align="center">
 
