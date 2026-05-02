@@ -24,4 +24,4 @@ yeah so if this is redone again and it looks all scary ignore that ok im nice an
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=moonrisen&color=661c15&style=plastic&label=★&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=moonrisen&color=9e1532&style=plastic&label=★&abbreviated=true)
