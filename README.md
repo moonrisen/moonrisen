@@ -12,7 +12,7 @@ Guys its not happening im not making this look nice
 - i block freely
 
 ### Shit im into ohh yeahhh
-- ***IM:*** , **DrStone** , **Gachiakuta** , **Naruto** , **FMA(B)** , **Magi** , **Seraph(OtE)** , **PKMN**
+- ***IM:*** , **DrStone** , **Ichi the Witch** , **Naruto** , **FMA(B)** , **Magi** , **Seraph(OtE)** , **PKMN** , Gachiakuta 
 - astronomy , weather / natural disasters , lietrally just sceince , foxes / big cats , cooking , art / drawing
 
 ### Dni ew yucky you
